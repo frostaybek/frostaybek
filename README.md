@@ -1,9 +1,11 @@
-### Hi there 👋
+### Hey there 👋
 
 My name is Ayaz. I'm from Turkey and I'm looking jobs without Turkey.
 
-I'm currently learning HTML&CSS and JavaScript. I want to create my company and live in USA.
+I'm currently learning JavaScript and JS Frameworks.
 
-Ask me about anything, instagram: @frostaybek
+I want to work any frontend jobs. I want to improve my language skills.
 
-Telegram: @frostaybek
+Ask me about anything:
+
+<Telegram: "t.me/frostaybek"> <Instagram: "http://instagram.com/frostaybek">
