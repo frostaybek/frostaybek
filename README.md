@@ -8,4 +8,4 @@ I want to work any frontend jobs. I want to improve my language skills.
 
 Ask me about anything:
 
-Telegram: http://t.me/frostaybek  Instagram: http://instagram.com/frostaybek
+Telegram: http://t.me/frostaybek - Instagram: http://instagram.com/frostaybek
